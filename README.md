@@ -1,1 +1,1 @@
-# sto
+# i_teluk
